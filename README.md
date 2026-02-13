@@ -1,1 +1,1 @@
-20 completed
+40 completed
